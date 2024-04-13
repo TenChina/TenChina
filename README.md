@@ -4,7 +4,7 @@ Hi 👋 My name is TenChina
 数据来源来自 blackmatrix7
 ----------------------- 
 
-谢谢 !
+谢谢 ! <br>
 謝謝你 !
 Thank you !
 Cảm ơn bạn !
