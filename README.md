@@ -2,6 +2,12 @@ Hi 👋 My name is TenChina
 ========================= 
 
 数据来源来自 blackmatrix7
+----------------------- 
+
+谢谢 !
+謝謝你 !
+Thank you !
+Cảm ơn bạn !
 -------------------------- 
 
 Do What You Like - Fuck The One You Love 
